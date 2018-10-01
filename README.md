@@ -1,0 +1,2 @@
+# emirkanalma.com
+personal homapage
